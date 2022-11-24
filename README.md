@@ -10,18 +10,30 @@
 - Play here's the list:       -
 ▫️- Genshin Impact
 ▫️- Pony town
+
 ▫️- Identity V
+
 ▫️- Mobile Legends
+
 ▫️- FateOfTheEmpress
+
 ▫️- VRChat
+
 ▫️- TheSims4
+
 ▫️- Roblox
+
 ▫️- Five Nights at Freddy's
+
 ▫️- Outlast
+
 ▫️- The forest
+
 ▫️◽◻️▫️◽◻️▫️◽◻️▫️◽◻️◽▫️
 
+
 ▪️◾◼️▪️◾◼️▪️◾◼️▪️◾◼️◾▪️
+
 • I personaly love dogs,    •
 • snakes and hamsters.      •
 •·-_·-_·-_·-_·-_·-_·-_·-_·-_•
@@ -29,18 +41,19 @@
 • With ppl, unless i do it  •
 • first. I also don't have  •
 • many friends, and i don't •
-• need more, they are ever- •
-• -ything for me, and i     •
+• need more, they are everything •
+• for me, and i             •
 • will not replace them.    •
 °_·-_·-_·-_·-_·-_·-_·-_·-_·-°
 ▪️◾◼️▪️◾◼️▪️◾◼️▪️◾◼️◾▪️
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
 
 📃 - I like to just play games in my free time.
+
 🗒️ - I also have three dogs! Their names are Morax, Collumbina and Kuba.
+
 💐 - I have an crush, not an lover.. but i wish.
+
 🧬 - I'm 20 years old by now.
 
-I'm horribly scared of not begin enough
 
-I also have diagnosed anxiety + fear of clowns.
