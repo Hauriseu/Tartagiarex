@@ -1,10 +1,10 @@
 - ▫️🕷️ Hi, I’m Ajax.
-- ▫️🕷️ I’m interested in cooking, paiting and skating.
 - ▫️🕷️ I’m currently working, at the restaurant.
 - ▫️🕷️ How to find me? Just go on my discord! Ajavistexq#7809 and go ahead, add me!
 
 
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
+
 ▫️◽◻️▫️◽◻️▫️◽◻️▫️◽◻️◽▫️
 - If it comes for the games i -
 - Play here's the list:       -
@@ -37,15 +37,18 @@
 • I personaly love dogs,    •
 • snakes and hamsters.      •
 •·-_·-_·-_·-_·-_·-_·-_·-_·-_•
-• I don't like interracting •
-• With ppl, unless i do it  •
-• first. I also don't have  •
-• many friends, and i don't •
-• need more, they are everything •
-• for me, and i             •
-• will not replace them.    •
+• I don't like interracting 
+ With ppl, unless i do it  
+ first. I also don't have  
+ many friends, and i don't 
+ need more, they are everything 
+ for me, and i             
+ will not replace them.    •
+
 °_·-_·-_·-_·-_·-_·-_·-_·-_·-°
+
 ▪️◾◼️▪️◾◼️▪️◾◼️▪️◾◼️◾▪️
+
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
 
 📃 - I like to just play games in my free time.
