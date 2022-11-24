@@ -1,14 +1,16 @@
-- ▫️🕷️ Hi, I’m Ajax.
+- ▫️🕷️ Hi, I’m Ajax. And i'm 20years old now.
 - ▫️🕷️ I’m currently working, at the restaurant.
 - ▫️🕷️ How to find me? Just go on my discord! Ajavistexq#7809 and go ahead, add me!
-
 
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
 
 ▫️◽◻️▫️◽◻️▫️◽◻️▫️◽◻️◽▫️
 - If it comes for the games i -
+
 - Play here's the list:       -
+
 ▫️- Genshin Impact
+
 ▫️- Pony town
 
 ▫️- Identity V
@@ -21,8 +23,6 @@
 
 ▫️- TheSims4
 
-▫️- Roblox
-
 ▫️- Five Nights at Freddy's
 
 ▫️- Outlast
@@ -33,10 +33,6 @@
 
 
 ▪️◾◼️▪️◾◼️▪️◾◼️▪️◾◼️◾▪️
-
-• I personaly love dogs,    •
-• snakes and hamsters.      •
-•·-_·-_·-_·-_·-_·-_·-_·-_·-_•
 • I don't like interracting 
  With ppl, unless i do it  
  first. I also don't have  
@@ -45,18 +41,4 @@
  for me, and i             
  will not replace them.    •
 
-°_·-_·-_·-_·-_·-_·-_·-_·-_·-°
-
-▪️◾◼️▪️◾◼️▪️◾◼️▪️◾◼️◾▪️
-
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
-
-📃 - I like to just play games in my free time.
-
-🗒️ - I also have three dogs! Their names are Morax, Collumbina and Kuba.
-
-💐 - I have an crush, not an lover.. but i wish.
-
-🧬 - I'm 20 years old by now.
-
-
