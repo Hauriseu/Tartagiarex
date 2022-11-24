@@ -5,9 +5,7 @@
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
 
 ▫️◽◻️▫️◽◻️▫️◽◻️▫️◽◻️◽▫️
-- If it comes for the games i -
-
-- Play here's the list:       -
+- If it comes for the games I play here's the list: 
 
 ▫️- Genshin Impact
 
