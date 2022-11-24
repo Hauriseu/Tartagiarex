@@ -1,0 +1,4 @@
+- ▫️🕷️ Hi, I’m Ajax.
+- ▫️🕷️ I’m interested in cooking, paiting and skating.
+- ▫️🕷️ I’m currently working, at the restaurant.
+- ▫️🕷️ How to find me? Just go on my discord! Ajavistexq#7809 and go ahead, add me!
