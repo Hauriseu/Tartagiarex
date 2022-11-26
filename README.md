@@ -31,6 +31,7 @@
 
 
 ▪️◾◼️▪️◾◼️▪️◾◼️▪️◾◼️◾▪️
+
 • I don't like interracting 
  With ppl, unless i do it  
  first. I also don't have  
