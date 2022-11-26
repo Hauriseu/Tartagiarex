@@ -39,4 +39,8 @@
  for me, and i             
  will not replace them.    •
 
+ • - About this what makes me 
+happy? That's easy just 
+playing games and talking
+with my friends! - •
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
