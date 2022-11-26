@@ -44,4 +44,8 @@
 happy? That's easy just 
 playing games and talking
 with my friends! - •
+
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
+The ships i like (Genshin Impact)
+
+:Luckae, Thomato, Albercose, Chiscara, Capitaru, Ittorou, Cynonari, Kavehtam, Tartali, Dottolone, Shenlan, Kazuscara, Aexiao, Zhongzu.
