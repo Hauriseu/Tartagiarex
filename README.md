@@ -1,6 +1,6 @@
-- ▫️🕷️ Hi, I’m Ajax. And i'm 20years old now.
+- ▫️🕷️ Hi, I’m Hauru. And i'm 20years old now.
 - ▫️🕷️ I’m currently working, at the restaurant.
-- ▫️🕷️ How to find me? Just go on my discord! Ajavistexq#7809 and go ahead, add me!
+- ▫️🕷️ How to find me? Just go on my discord! Havisteuru#7809 and go ahead, add me!
 
  🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️▫️🕷️
 
